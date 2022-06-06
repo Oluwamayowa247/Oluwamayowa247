@@ -7,7 +7,7 @@
 - ⚡ Fun Fact: I love soccer (Up Chelsea ⚽!), and Nigerian Songs 🎶 too 
 
 ### Connect with me 
-[<img align = "left" alt = "mayourwa.hashnode.dev| Hashnode" width ="22px" src = " https://cdn.hashnode.com/res/hashnode/image/upload/v1647152709324/BgqHEiR8w.png">][website]
+[<img align = "left" alt = "mayourwa.hashnode.dev| Hashnode" width ="22px" src = "https://seeklogo.com/images/H/hashnode-logo-B114767E70-seeklogo.com.png">][website]
 
 [<img align ="left" alt="MayowaOlutuyo|Twitter" width="29px" src = "https://www.freepnglogos.com/uploads/twitter-logo-png/twitter-bird-symbols-png-logo-0.png"/>][twitter]
 
